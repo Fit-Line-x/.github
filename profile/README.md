@@ -1,1 +1,1 @@
-![SunrinINT](https://github.com/sunrin-int/.github/blob/main/profile/Banner.png)
+![FitLine](https://github.com/Fit-Line-x/.github/blob/main/profile/FitLine_Banner.png)
